@@ -1,4 +1,4 @@
-# Santiago Martínez Dié
+# Santiago Martínez Díe
 
 ### **`Mathematical Engineering & Artificial Intelligence Student`**
 ✉️ [sant.martinez2004@gmail.com](mailto:sant.martinez2004@gmail.com)  
